@@ -472,8 +472,8 @@ MIT License © 2025 Aryan Baadlas
 
 ## 📬 Contact
 
-👨‍💻 **Aryan Baadlas**  
-📧 **aryanbaadlas@gmail.com**
+👨‍💻 **karan**  
+📧 **karansodhi703@gmail.com**
 
 ---
 
